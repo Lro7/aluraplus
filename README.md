@@ -15,4 +15,6 @@
 
 ## Feito por:
 
-### Lauro S. Custodio
+### Lauro S. Custodio.
+### Linkedin: https://www.linkedin.com/in/lauro-custodio-a28b8a8b
+
